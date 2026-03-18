@@ -1,4 +1,4 @@
->🚀最后更新时间: 2026-03-18 13:38:01
+>🚀最后更新时间: 2026-03-18 14:23:41
 
 ## 无视高峰，全天4K高速秒开云加速器
 ### BGP多线接入，高速低延迟
@@ -26,19 +26,19 @@
 >🚀免费Clash订阅链接
 
 ```
-https://ltDg3c.mcsslk.xyz/24bebfaab0f81d8996df7dbce4f2f810
+https://xgTHBN.mcsslk.xyz/d1be939e1a7b69ca83b67813c41f2528
 ```
 
 >🚀免费v2rayN订阅链接
 
 ```
-https://ltDg3c.mcsslk.xyz/24bebfaab0f81d8996df7dbce4f2f810
+https://xgTHBN.mcsslk.xyz/d1be939e1a7b69ca83b67813c41f2528
 ```
 
 >🚀免费iOS小火箭订阅链接
 
 ```
-https://ltDg3c.mcsslk.xyz/24bebfaab0f81d8996df7dbce4f2f810
+https://xgTHBN.mcsslk.xyz/d1be939e1a7b69ca83b67813c41f2528
 ```
 
 
